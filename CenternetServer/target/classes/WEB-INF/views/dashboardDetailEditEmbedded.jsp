@@ -1,0 +1,1 @@
+Yeah, detail edit
